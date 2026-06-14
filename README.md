@@ -1,7 +1,7 @@
 # Pro-Flood-Escape
 <sup>sum ppl already leaked this iirc but i'll do it too js to add more fuel to the fire
 
-do not use this game to learn scripting, it is an absolute monstrosity of a game vibecoded unoptimised to shit (like his exploit script) by urs truely @ltseverydayyou and shouldn't be ironically touched with a ten-foot pole
+do not use this game to learn scripting, it is an absolute monstrosity of a game vibecoded unoptimised to shit (like his exploit script) by urs truely [@ltseverydayyou](https://github.com/ltseverydayyou) and shldn't be ironically touched with a ten-foot pole
 go leak and reupload this ig
 
 maxype when he unironically thinks anyone rly cares about him.. thx for banning me from ur shitty game with like tens of thousands of stolen maps!!
