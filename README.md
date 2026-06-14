@@ -1,4 +1,5 @@
 # Pro-Flood-Escape
+<sup>tide leaked this iirc but i'll provide the file js to add more fuel to the fire i guess<\sup>
 
 do not use this game to learn scripting, it is an absolute monstrosity of a game vibecoded unoptimised to shit (like his exploit script) by urs truely @ltseverydayyou and shouldn't be ironically touched with a ten-foot pole
 go leak and reupload this ig
